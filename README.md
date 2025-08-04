@@ -1,6 +1,6 @@
 # 📣 Poleć zajęcia z Brydża!
 
-Cześć! Chodzę na zajęcia brydżowe w **[Wawa Brydż](https://www.wawabrydz.pl)** i bardzo mi się spodobały.  
+Cześć! Chodzę na zajęcia brydżowe w **[WawaBrydż](https://www.wawabrydz.pl)** i bardzo mi się spodobały.  
 Myślę, że Tobie przypadną do gustu, a tak się składa, że we wrześniu będą organizowane kursy Poznaj Zasady Gry, czyli zupełnie od podstaw - szczegóły **[tutaj](https://www.wawabrydz.pl/brydz-zasady-gry/)**. Nie zapomnij powołać się na mnie przy zapisie :-)
 
 ---
